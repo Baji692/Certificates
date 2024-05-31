@@ -1,1 +1,1 @@
-Here, I have done intership in Accenture on Data Analysis & Visualization. I have uploaded my Certificate in My Github repository. Go and check that.
+I had done my internship in accenture and tata companies on data analysis and visualization and the certificates are uploaded above.  These experiences allowed me to gain practical experience in data analysis and visualization, using industry-standard tools and techniques. I am eager to apply my skills and knowledge to a challenging and rewarding role.
